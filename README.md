@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Atrozz
+- 👋 Hi, I’m @Atrozz Selister
 - 👀 I’m interested in coding,programming and gaming
 - 🌱 I’m currently learning this☝
 
